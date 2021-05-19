@@ -1,6 +1,5 @@
 # Nazis, Fascists, Dictators & War criminals helped & rehabilitated by the west
 
-Hans speidel might be worth looking into.
 
 ## Re-employed
 
