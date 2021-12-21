@@ -1,21 +1,41 @@
-# Info
-Information contributed by the community of red spectre
+𝐄𝐧𝐯𝐞𝐫 𝐇𝐨𝐱𝐡𝐚 𝐒𝐨𝐜𝐢𝐞𝐭𝐲
 
-**Only join if Marxist-Leninist or sympathizer**
+Welcome to the 𝙴𝚗𝚟𝚎𝚛 𝙷𝚘𝚡𝚑𝚊 𝚂𝚘𝚌𝚒𝚎𝚝𝚢.
 
-__Welcome to the Red Spectre__
+⎯⎯★⎯⎯☆⎯⎯★⎯⎯
 
-The Red Spectre is a Marxist-Leninist (Stalinist/Hoxhaist) Server that is compact and doesn't have any redundant features.
-We are a polite and welcoming community that makes sure that each and every one of our members has the security of spending time in a safe environment.
+We are a community of Marxist-Leninists from around the world 
+and our goal is to study and to propagate the scientific world-view of Marxism-Leninism.
 
-We have our own Marxist-Leninist Library with pieces of literature not found anywhere else.
+We collectively study and learn from the teachings of our four 
+classics, whom are Karl Marx, Friedrich Engels, Vladimir Lenin and 
+Joseph Stalin. Additionally, we learn from other Marxist Leninist 
+thinkers such as Georgi Dimitrov, Harry Haywood or Enver Hoxha.
 
-We don't have a dehumanizing and unnecessary formulary that you have to fill out, in order to join the server. You're a human being, not a prisoner of war undergoing an interrogation.
+⎯⎯★⎯⎯☆⎯⎯★⎯⎯
 
-Last but not least, we have a moderated questions and answers section on our server where non-educated answers will get deleted, so that all people that are new to Marxism can make sure to not pick up any false information.
+We sympathise with the International Conference of Marxist-
+Leninist Parties and Organisations (CIPOML). However, we are not 
+officially affiliated with them.
 
-Join if you're tired of shitholes full of Anti-Bolshevism.
+The 𝙴𝚗𝚟𝚎𝚛 𝙷𝚘𝚡𝚑𝚊 𝚂𝚘𝚌𝚒𝚎𝚝𝚢 is a supportive society to people whom are 
+oppressed for their individual identities such as different racial and 
+ethnic groups, or people from the LGBT-spectrum.
 
-Rotfront! 🚩 ✊
+⎯⎯★⎯⎯☆⎯⎯★⎯⎯
 
-https://discord.gg/nxZEVpMhDV
+We are absolutely intolerant towards intolerant individuals such as 
+Fascists and racists.
+
+We hope to create a platform for discussing Marxism-Leninism, in 
+which we learn to combat anti-Communism and at the same time to 
+provide practical education on how to be an active Communist.
+
+We hope to have you welcome in the 𝙴𝚗𝚟𝚎𝚛 𝙷𝚘𝚡𝚑𝚊 𝚂𝚘𝚌𝚒𝚎𝚝𝚢.
+
+Hopefully this invitation has given you an incentive, to come and take a look.
+
+⎯⎯★⎯⎯☆⎯⎯★⎯⎯
+
+Invitation:
+https://discord.gg/fcWghmQpUr
