@@ -152,6 +152,203 @@ Stating clearly as day that the transition would be sharp and sudden _if only th
 Between these, The civil war, The invasions, World war 1, The famine and the SRs and Mensheviks fighting against soviet power one can understand the NEP in its historical context.
 If tiny Albania could move to Socialism with much less wealth or technology, Without cutting edge supercomputers and modern nuclear power plants, Why can't modern China?
 
-Besides, How long did the NEP take(Around 7 years, 4 of war and 3 of peace) compared to the Chinese reforms? I would justify 5 years of NEP peace, 7 years, 10 years - Hell, Even 15 I could _somehow_ understand. But even if we ignore Mao completely Dengs reforms have been in place for over **fourty years.**
+Besides, How long did the NEP take(Around 7 years, 4 of war and 3 of peace) compared to the Chinese reforms? I would justify 5 years of NEP peace, 7 years, 10 years - Hell, Even 15 I could _somehow_ understand. But even if we ignore Mao completely Dengs reforms have been in place for over **fourty years.**  
+
+## When discussing productive forces, We cannot forget the relations of production
+
+The most adamant of the defenders of the "C"PC speak about "productive forces" so much it became a meme. In truth, However, Everyone using the productive forces argument to defend the exploitative Chinese state reveal a schism which eclipses the distance between pluto and the sun, A schism between themselves and anything Marxist.   
+
+Instead of "Marxists" and "Leninists" honest proponents of such idea ought to use the term "Yaroshenkoists":
+
+> To describe Comrade Yaroshenko’s opinion in a couple
+of words, it should be said that it is un-Marxist — and, hence, profoundly erroneous.
+Comrade Yaroshenko’s chief error is that he forsakes the
+Marxist position on the question of the role of the productive
+forces and of the relations of production in the development
+of society, that he inordinately overrates the role of the productive forces, and just as inordinately underrates the role
+of the relations of production, and ends up by declaring that
+under socialism the relations of production are a component
+part of the productive forces.
+
+-_**Stalin**, [Economic problems in the USSR](http://marx2mao.com/Stalin/EPS52.pdf), P60_
+  
+And this issue of paying too much attention to the productive forces(Material capacity to produce, Like better factories) while giving too little attention to the relations of production(Who owns these factories - A lord, A capitalist, The factory workers, The state? If its the latter, Who owns the state?) leads to the ridiculous idea that:
+
+> here, according to Comrade Yaroshenko,
+the relations of production lose every vestige of an independent role, they cease to be a serious factor of development,
+and are absorbed by the productive forces, becoming a component part of them. Under socialism, Comrade Yaroshenko says, “men’s production relations become part of the organization of the productive forces, as a means, an element of their organization.”  
+[...]  
+If that is so, what is the chief task of the “Political Economy of Socialism”? Comrade Yaroshenko replies: “The
+chief problem of the Political Economy of Socialism, therefore,
+is not to investigate the relations of production of the members of socialist society; it is to elaborate and develop a
+scientific theory of the organization of the productive forces
+in social production, a theory of the planning of economic
+development  
+[...]  
+He plainly declares that in his Political
+Economy of Socialism “disputes as to the role of any particular category of socialist political economy — value, commodity, money, credit, etc., — which very often with us are
+of a scholastic character, are replaced by a healthy discussion
+of the rational organization of the productive forces in social
+production, by a scientific demonstration of the validity of
+such organization.”
+
+-_[Ibid](http://marx2mao.com/Stalin/EPS52.pdf), P60 - 61_
+  
+And all of this leads to a __complete disregard__ of the relations of production.
+
+> Comrade Yaroshenko thinks that it is enough to arrange
+a “rational organization of the productive forces,” and the
+transition from socialism to communism will take place without any particular difficulty. He considers that this is quite
+sufficient for the transition to communism. He plainly declares that “under socialism, the basic struggle for the building of a communist society reduces itself to a struggle for the proper organization of the productive forces and their rational utilization in social production.”   
+Comrade Yaroshenko solemnly proclaims that “Communism is the highest
+scientific organization of the productive forces in social
+production.”
+
+-_[Ibid](http://marx2mao.com/Stalin/EPS52.pdf), P61-62_
+
+And with such "un-Marxist" and "profoundly erroneous" theories we can finally declare that no contradiction exists between a market economy and a socialist economy. Suddenly, Communism is not attained by gradually doing away with the birthmarks of Capitalism, By drawing the workers themselves to the process of running the economy through education, By doing away with commodities and value, And many more; Now the process is simple. Make the factory bigger and faster using any means until you reach Communism.  Socialism is no longer a mode of production but any economy that grows fast.
+
+If this sounds like a Paradox to you, Congratulations. You understand Dialectics better then all "Yaroshenkoists" put together. If we declare that under Socialism the relations of production lose their importance(For example by having a market economy when planning is possible) and pretend advancing productive forces not only manages to preserve Socialism but advance it to Communism,  "Socialism" lost all meaning. To prove my point:   
+
+The Ukranian SSR was Socialist.  
+If we assume that once Socialism is attained the Relations of Production become subordinated to the productive forces, Hence a change to the relations of production(Like permitting private ownership) will _not_ change its Socialist nature, Rejoice for modern Ukraine is still Socialist!  
+If we assume Ukraine is no longer Socialist, Then why? Is it because of the productive forces? Is it because ""Hurr Durr factory grow fast under Stalin, Factory grow slow under Brezhnev, Factory goes kaput under Gorbachev and Yeltsin""? Nonsense! It is no longer Socialist because the relations of production changed __despite the productive forces still growing.__ It is also why the growth slowed under Khrushchev and Brezhnev slowed and why (in part) industry collapsed after the USSR was destroyed. This means the relations of production never ceased to matter, That they are still highly important under Socialism(Which China never reached), And that excusing capitalism with "productive forces" cannot exist alongside scientific Socialism.  
+
+According to Deng Xiaoping:
+> There is no such thing as socialism and communism with poverty. The ideal of Marxists is to realize communism. According to Marx, communist society is a society in which the principle of from each according to his ability, to each according to his needs is applied. What is the principle of to each according to his needs? How can we apply this principle without highly developed productive forces and vast material wealth? According to Marxism, communist society is a society in which there is overwhelming material abundance. **Socialism is the first stage of communism; it means expanding the productive forces, and it represents a long historical period.** Only if we constantly expand the productive forces can we finally achieve communism. The Gang of Four’s absurd theory of socialism and communism led only to poverty and stagnation.
+
+-_Deng Xiaoping, ["We Shall Draw On Historical Experience and Guard Against Wrong Tendencies"](https://dengxiaopingworks.wordpress.com/2013/03/18/we-shall-draw-on-historical-experience-and-guard-against-wrong-tendencies/)_
+
+So, Does Socialism mean "expanding the productive forces" or is it a definite mode of production?
+
+> principles of Socialism, whose main pillars are things that have already been achieved and realized : the Socialist ownership of the land, forests, factories, works and other instruments and means of production; the **abolition of exploitation and of exploiting classes**; the **abolition**[E.D: **ABOLITION.** Not "reduction."] of poverty for the majority and of luxury for the minority; the **abolition** of unemployment; work as an obligation and an honourable duty for every able-bodied citizen, in accordance with the formula : "He who does not work, neither shall he eat"; the **right to work**, i.e., the right of every citizen to receive guaranteed employment; the right to rest and leisure; the right to education, etc., etc. The draft of the new Constitution rests on these, and similar pillars of Socialism.  
+
+-_**Stalin**, [On the Draft Constitution of the U.S.S.R](https://www.marxists.org/reference/archive/stalin/works/1936/11/25.htm)_
+
+Deng repeats his mistake in understanding Socialism multiple times.
+
+> These can be summed up as the decision to build socialism suited to conditions in China. And if we are to build socialism, our **fundamental** task must be to **develop the productive forces**, shake off poverty, build a strong, prosperous country and improve the living conditions of the people.
+
+-_Deng Xiaoping, ["We Must Continue To Emancipate Our Minds and Accelerate the Reform"](https://dengxiaopingworks.wordpress.com/2013/03/18/we-must-continue-to-emancipate-our-minds-and-accelerate-the-reform/)_
+
+In conclusion, Socialism is __not__ poverty reduction or advancing productive forces. Socialism is a higher mode of production then Capitalism. Socialism is a mode of production that __abolishes__ poverty and pushes the productive forces to grow. Socialism is a **MODE OF PRODUCTION.**
+
+"But wait!", I can already see someone asking and doing their very best to avoid any of my arguments, "Why must the two contradict? Give China more time to develop its productive forces and _then_ they will fix their relations of production!"   
+It speaks volumes about how low the Communist movement fell, How much we suffered due to the Khrushchevite betrayal, That I have not only to remark but anticipate such a "question". Despite already showing this utopian idea sufficed for comrade **Stalin** to call out Yaroshenko by name, And despite this same argument being universal, And could fit for defending any regime in history - The USA, Russia, Iran, Even the bloody Roman empire - "Just give them time and eventually our Peoples party / Liberal democracy / Benevolent god / Any other idealist rubbish, Will **willingly** liberate us! We do not have to fight!"    
+
+But providing a worthwhile answer to this point may at least be of some use to those who want to learn. Let us get to it.
+
+### When do we know the Relations of Production ought to change?
+
+We need to first understand how the Relations of Production interact with the Productive Forces and vice versa.   
+There will be a summary below the quote.
+
+> the relations of production in their
+turn react upon the development of the productive forces,
+accelerating or retarding it. In this connection it should be noted that the relations of production cannot
+for too long a time lag behind and be in a state of
+contradiction to the growth of the productive forces,
+inasmuch as the productive forces can develop in full
+measure only when the relations of production correspond to the character, the state of the productive forces
+and allow full scope for their development. Therefore,
+however much the relations of production may lag behind the development of the productive forces, they
+must, sooner or later, come into correspondence with—
+and actually do come into correspondence with—the
+level of development of the productive forces, the
+character of the productive forces. Otherwise we
+would have a fundamental violation of the unity of the
+productive forces and the relations of production within
+the system of production, a disruption of production as
+a whole, a crisis of production, a destruction of productive forces.
+An instance in which the relations of production
+do not correspond to the character of the productive
+forces, conflict with them, is the economic crises in
+capitalist countries, where private capitalist ownership
+of the means of production is in glaring incongruity
+with the social character of the process of production,
+with the character of the productive forces. This
+results in economic crises, which lead to the destruction
+of productive forces. Furthermore, this incongruity
+itself constitutes the economic basis of social revolution,
+the purpose of which is to destroy the existing relations
+of production and to create new relations of production
+corresponding to the character of the productive forces.
+
+-_**Stalin**, [Dialectical and Historical Materialism](http://ciml.250x.com/archive/stalin/english/stalin_1938_dialectical_and_historical_materialism.pdf), P26-27)_
+
+In other words, The Productive forces "go first" and advance faster. The Relations of Production can either correspond to the productive forces or lag behind them. 
+If they correspond, The relations of production "push" the productive forces to advance faster.  
+If the Relations lag too far behind, They slow down the productive forces, Meaning they grow slower.
+If the Relations lag very far behind, Crisis of production occurs and the productive forces diminish.
+When the Relations and Forces do not correspond we have something comparable to a rubber band. Imagine grabbing an indestructible rubber band from both sides and pulling it apart. The further you are, The harder it is to advance. You need to expend more effort for the same distance. You suddenly need to expend effort just to stay where you are. Eventually one of your hands "gives up".   
+With this same principle, When the productive forces advance and the relations of production do not, There starts to exist a sort of "rubber band" pulling them together. The further away they are, The slower the productive forces advance. Eventually crises start to occur and these become (on average) worse and worse (like when the rubber band hits your hand). Eventually either a crisis occurs and the productive forces are "pulled backwards" by the rubberband (worth noting they usually advance more until the next crisis hits), Or the relations of production are "pulled forward" (Revolution) and the problem is solved.  
+There is much more depth to go into here but this unfortunately is leagues more compared to the average "Twitter Marxist" and will more then suffice for our purpose.  
+
+
+I will begin by stating the best time to do so, Then move on to the later date where arguing against this change is inexcusable.
+
+
+#### When is the ideal time to advance the relations of production?  
+
+The moment you can. Once you have the conditions needed to do so, Do it.
+Anyone who read "[Foundations of Leninism](https://foreignlanguages.press/wp-content/uploads/2020/08/C01-Foundations-of-Leninism.pdf)" will be able to tell you the line we take on building a "Chinese Wall" between the first stage of the revolution(bourgeoisie-democratic) and the second one(Socialist and led by the Proletariat).  
+
+> The heroes of the Second International asserted (and
+continue to assert) that between the bourgeois-democratic revolution and
+the proletarian revolution there is a chasm, or at any rate a Chinese Wall,
+separating one from the other by a more or less protracted interval of
+time, during which the bourgeoisie having come into power, develops capitalism, while the proletariat accumulates strength and prepares for the
+“decisive struggle” against capitalism. This interval is usually calculated to
+extend over many decades, if not longer. It scarcely needs proof that this
+Chinese Wall “theory” is totally devoid of scientific meaning under the
+conditions of imperialism, that it is and can be only a means of concealing
+and camouflaging the counter-revolutionary aspirations of the bourgeoisie.
+
+-_**Stalin**, [Foundations of Leninism](https://foreignlanguages.press/wp-content/uploads/2020/08/C01-Foundations-of-Leninism.pdf), P27_
+
+What is often misunderstood, Howeever, Is that even Communist parties which have secured state power can still make this mistake(turning themselves from Communists to opportunists in the process). in **1921,** **Lenin** wrote:
+
+> Both the anarchists and the petty-bourgeois democrats (i.e., the Mensheviks and the Socialist-Revolutionaries, who are the Russian counterparts of that international social type) have talked and are still talking an incredible lot of nonsense about the relation between the bourgeois-democratic revolution and the socialist (that is, proletarian) revolution. The last four years have proved to the hilt that our interpretation of Marxism on this point, and our estimate of the experience of former revolutions were correct. We have consummated the bourgeois-democratic revolution as nobody had done before. **We are advancing towards the socialist revolution consciously, firmly and unswervingly, knowing that it is not separated from the bourgeois-democratic revolution by a Chinese Wall**, and knowing too that (in the last analysis) struggle alone will determine how far we shall advance, what part of this immense and lofty task we shall accomplish, and to what extent we shall succeed in consolidating our victories. Time will show. But we see even now that a tremendous amount—tremendous for this ruined, exhausted and backward country—has already been done towards the socialist transformation of society.     
+[...]  
+But in order to consolidate the achievements of the bourgeois-democratic revolution for the peoples of Russia, we were obliged to go farther; and we did go farther. We solved the problems of the bourgeois-democratic revolution in passing, as a “by-product” of our main and genuinely proletarian-revolutionary, socialist activities. We have always said that reforms are a by-product of the revolutionary class struggle. We said—and proved it by deeds—that bourgeois-democratic reforms are a by-product of the proletarian, i.e., of the socialist revolution. Incidentally, the Kautskys, Hilferdings, Martovs, Chernovs, Hillquits, Longuets, MacDonalds, Turatis and other heroes of “Two and-a-Half” Marxism were incapable of understanding this relation between the bourgeois-democratic and the proletarian-socialist revolutions. The first develops into the second. The second, in passing, solves the problems of the first. The second consolidates the work of the first. Struggle, and struggle alone, decides how far the second succeeds in outgrowing the first.   
+The Soviet system is one of the most vivid proofs, or manifestations, of how the one revolution develops into the other. The Soviet system provides the maximum of democracy for the workers and peasants; at the same time, it marks a break with bourgeois democracy and the rise of a new, epoch-making type of democracy, namely, proletarian democracy, or the dictatorship of the proletariat.   
+[...]   
+**Our last, but most important and most difficult task, the one we have done least about, is economic development, the laying of economic foundations for the new, socialist edifice on the site of the demolished feudal edifice and the semi-demolished capitalist edifice.** It is in this most important and most difficult task that we have sustained the greatest number of reverses and have made most mistakes. How could anyone expect that a task so new to the world could be begun without reverses and without mistakes! But we have begun it. We shall continue it. At this very moment we are, **by our New Economic Policy, correcting a number of our mistakes. We are learning how to continue erecting the socialist edifice** in a small-peasant country without committing such mistakes.   
+
+-_**Lenin**, [Fourth Anniversary of the October Revolution](https://www.marxists.org/archive/lenin/works/1921/oct/14.htm)_ 
+
+In other words - The Soviet people must build up the basis to adopt Socialism as soon as possible.  
+Lenin explained the reason for this very, _Very clearly._    
+> Capitalism is a bane compared with socialism. Capitalism is a boon compared with medievalism, small production, and the evils of bureaucracy which spring from the dispersal of the small producers.  
+  
+-_**Lenin**, [The tax in Kind](https://www.marxists.org/archive/lenin/works/1921/apr/21.htm)_
+  
+#### When can the absence of such transition can be used to detect a reactionary state?  
+
+When a crisis of production occurs. We ought to advance the relations of production beforehand, Not only to avoid the crisis but to enjoy faster growth. But if a certain state and its rulers prefer to experience such a crisis over advancing the relations of production, It can only be a dictatorship of an exploiting minority. They resist because doing away with the old relations of production will be doing away with them. A Dictatorship of the Workers will not arrive into such a situation, Because the change to the relations of production will _either_ crush a remenant of exploitation and move us a step closer to Socialism - Or, If we already arrived there, Because exploitation was already done away with and the state belongs to the people, And the people have no interest in resisting this advance. The few elements which still resist this step do not control the state, Hence they cannot stop it.
+
+> How, then, are the words “full conformity” to be understood? They are to be understood as meaning that under
+socialism things do not usually go to the length of a conflict
+between the relations of production and the productive
+forces, that society is in a position to take timely steps to
+bring the lagging relations of production into conformity
+with the character of the productive forces. Socialist society
+is in a position to do so because it does not include the
+obsolescent classes that might organize resistance. Of course,
+even under socialism there will be backward, inert forces
+that do not realize the necessity for changing the relations of
+production; but they, of course, will not be difficult to overcome without bringing matters to a conflict.
+
+-_**Stalin**, [Economic Problems of the USSR](http://marx2mao.com/Stalin/EPS52.pdf), P52_  
+
+(For reference, The below paragraph is written in early 2022, Less then two weeks since 2021)
+In China, [2009 there was a massive economic crisis that affected the weakest the most](https://wid.world/share/#0/countrytimeseries/ahweal_p0p10_z/CN/2015/eu/k/p/yearly/a/false/-2003.9395/1500/curve/false/1978/2021). The 0%-10% Went into the negative and still head down. Consider that this crisis never had to happen, And these people never had to suffer because of it. This was not a "natural", "unavoidable" tragedy. It was a crime. The Chinese bourgeoisie enriched themselves on the backs of the Chinese workers. Worse still, The [Gross Domestic Product per adult & National Income per adult continued to grow!](https://wid.world/share/#0/countrytimeseries/ahweal_p0p10_z;agdpro_p0p100_z;anninc_p0p100_z/CN/2015/eu/k/p/yearly/a/false/-2993.8195/25000/curve/false/1950/2021)  
+Where did all this wealth go, Then, If it was not sucked out of China? [here](https://wid.world/share/#0/countrytimeseries/ahweal_p99.99p100_z;anninc_p0p100_z;agdpro_p0p100_z/CN/2015/eu/k/p/yearly/a/false/0/120000000/curve/false/1950/2021). To the 99.99%. Those who never needed to "recover", But instead grew and continue to grow. It is obvious to all that even a mockery of the NEP, Executed by amaetures, Would not have yielded such results.  
+
+Comrades, This is not Socialism, socialist construction, an NEP, or any other excuse to be found. This is late stage capitalism. This is Imperialism. This is the face of reaction. We will be nothing short of class traitors, Should we backstab our Chinese comrades by supporting their exploiters! We must unite with the Chinese workers against Imperialism everywhere and reaction everywhere - An injury to one is an injury to all. Without an uncompromising war for the truth, A war to expose deception meant to disarm us, to set us against one another only Utopians will believe in a course to Socialism. Our theory is a guide for action - A guide to achieve the liberation of workers everywhere. Liberty from exploitation and poverty, war and deceit. The murderous propagandists of NATO may try to set us against ourselves while the revisionist social-democrats wish for us to "make peace" and bend the knee to our class enemies. Only with the teachings of Marx-Engels-Lenin-Stalin-Hoxha, only by the uncompromising struggle for liberty, may we bring to life our call for unity:
+
+# Workers of the world, unite! 
+
+
 
 
