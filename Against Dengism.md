@@ -5,6 +5,7 @@
 - [But they kill Billonares! Why would a dictatorship of the bourgeoisie do that?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#but-they-kill-billonares-why-would-a-dictatorship-of-the-bourgeoisie-do-that)
 - [What about poverty reduction?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#what-about-poverty-reduction)
 - [Isn't it just like Lenin's NEP?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#isnt-it-just-like-lenins-nep)
+  - [If Capital must take control of the State, Why did the USSR survive the NEP and continued Socialist construction?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#if-capital-must-take-control-of-the-state-why-did-the-ussr-survive-the-nep-and-continued-socialist-construction)
 - [When discussing productive forces, We cannot forget the relations of production](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#when-discussing-productive-forces-we-cannot-forget-the-relations-of-production)
   - [When do we know the Relations of Production ought to change?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#when-do-we-know-the-relations-of-production-ought-to-change) 
     - [When is the ideal time to advance the relations of production?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#when-is-the-ideal-time-to-advance-the-relations-of-production)
