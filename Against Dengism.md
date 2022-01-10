@@ -86,6 +86,53 @@ Comrade **Stalin** was indeed correct when he stated:
 
 In short, It is Bourgeoisie infighting, Using the state against individual bourgeoisie who break class discipline. It is the result of the centralised cartel-like structure of the CPC allowing their capitalists to be better coordinated, And to coordinate "class rules", And punish whatever capitalist breaks these "rules". Much like a DoTP would arrest individual workers for breaking the law(I.E a workers state arrests and executes a worker for taking an action that helps them individually but hurts the working class as a whole) can a dictatorship of the bourgeoisie arrest individual capitalists for breaking their agreements, Pacts, Concensus, Or even just because the wrong person stands to gain from their death(I.E a capitalist state arrests and executes a capitalist for taking a profitable action that hurts the capitalist class, Or a few other capitalists which are "stronger". Alternatively, The execution occurs because it would be profitable to this stronger group to do so).
 
+### The CPC has bad factions in it but Xi Jinping are fighting to restore / preserve the dictatorship of the proletariat.
+
+An argument I once heard on why we should support China went along the lines of "The Central Committee has multiple lines and trends in it, fighting against one another. In the meanwhile they have a centralised economic structure that builds up the economy. When thats done we will reach socialism".
+
+Another, "Xi Jinping and his group are good and are cleaning the CPC of revisionism".
+
+But even if we accept either of these incorrect points we reach a point where no Dictatorship of the Proletariat exists. If we have many lines, why are they not purged away? Is it because the "good faction" isn't strong enough? This means the bad ones control the state. A dictatorship of the Bourgeoisie.
+Just because the group of Alexander Shelepin existed, which wanted a return to Socialism and to liquidate revisionism after Khrushchev was ousted, does not mean we should defend the government of Brezhnev and Kosygin - quite the contrary, we should call for its overthrow! it matters little if its done from within the CPSU or from without. Whats important is that its done. Once we actually see Kosygin and Brezhnev get ousted, once we see the SU authorities move to Re-Stalinisation, once we see Khrushchevite economic policies being reversed in deeds and not only in words we can declare the workers are in power, to declare the state a dictatorship of the working class.  
+
+But the CPC shows no such signs, not even the slightest ones. Quite the contrary, China's course and Xi Jinpings speeches point to the further strengthening of the already omnipotent capital.
+
+> **Reform and Opening up Is Always Ongoing and Will Never End**
+Reform and opening up is a long-term and arduous cause, and people need
+to work on it generation after generation. We should carry out reform to improve
+the socialist market economy of China, and adhere to the basic state policy of
+opening up to the outside world. We must further reform in key sectors with
+greater political courage and vision, and forge ahead steadily in the direction
+determined by the Party’s 18th National Congress.
+**The “Invisible Hand” and the “Visible Hand”**
+We should let the market play the decisive role in allocating resources,
+while allowing the government to better perform its functions. This is a
+theoretical and practical issue of great importance. A correct and precise
+understanding of this issue is very important to further the reform and promote
+the sound and orderly development of the socialist market economy. We should
+make good use of the roles of both the market, the “invisible” hand, and the
+government, the “visible” hand. The market and the government should
+complement and coordinate with each other to promote sustained and sound
+social and economic development.
+**Revolutionize Energy Production and Consumption**
+Fourth, we must revolutionize the energy market. We will proceed with
+reform, restore energy’s status as a commodity, build a system of workable
+competition, and put in place a mechanism in which energy prices are largely
+driven by the market. In addition, we will change the way that the government
+supervises the energy industry, and establish and improve the legal framework
+for energy development.
+-_Xi Jinping, [The Governance Of China Vol.1](https://www.bannedthought.net/China/Individuals/XiJinping/XiJinping-TheGovernanceOfChina.pdf), P87, 134, 149 respectively_
+
+I think we can all see how the reform needing "generations" more, How the Market should play the decisive role in allocating resources, And how evergy should be treated as a commodity (Making an ironic mockery to Lenin's GOLERO plan - Instead of electrification being the condition to move on from the market and embrace a planned economy, Elecrticity becomes just another tool of it. Just another commodity to buy and sell) suffices to disprove the above mentioned Liberal notions. What is a pro-market doing in such a high position, if not serving the interests of the bourgeoisie?
+
+Lenin one said
+
+> Communism is Soviet power plus the electrification of the whole country
+
+-_**Lenin**, [Our Foreign and Domestic Position and Party Tasks](https://www.marxists.org/archive/lenin/works/1920/nov/21.htm)_
+
+But it seems that """comrade"" bourgeoisie" does not agree with Lenin. Who is Lenin anyways? Instead, are we supposed to believe "Communism - Soviet power = Electrification of the whole country"? Perhaps that is the reason they plagiarise our symbols as such!
+
 ## What about poverty reduction?
 
 Why does a country with more [GDP Per capita(I.E per person) then the USSR still have poverty?](https://wid.world/world/#agdpro_p0p100_z/SU;CN/last/eu/k/p/yearly/a/false/4.048999999999978/30000/curve/false/country)
