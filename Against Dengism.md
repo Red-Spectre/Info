@@ -1,6 +1,14 @@
 # Against Dengism
 
-# WORK IN PROGRESS
+- [Is China Socialist?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#is-china-socialist)
+- [Its Socialism with Chinese charactaristics! Its adapted to local conditions!](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#its-socialism-with-chinese-charactaristics-its-adapted-to-local-conditions)
+- [But they kill Billonares! Why would a dictatorship of the bourgeoisie do that?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#but-they-kill-billonares-why-would-a-dictatorship-of-the-bourgeoisie-do-that)
+- [What about poverty reduction?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#what-about-poverty-reduction)
+- [Isn't it just like Lenin's NEP?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#isnt-it-just-like-lenins-nep)
+- [When discussing productive forces, We cannot forget the relations of production](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#when-discussing-productive-forces-we-cannot-forget-the-relations-of-production)
+  - [When do we know the Relations of Production ought to change?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#when-do-we-know-the-relations-of-production-ought-to-change) 
+    - [When is the ideal time to advance the relations of production?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#when-is-the-ideal-time-to-advance-the-relations-of-production)
+    - [When can the absence of such transition can be used to detect a reactionary state?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#when-can-the-absence-of-such-transition-can-be-used-to-detect-a-reactionary-state)
 
 ## Is China Socialist?
 This can be answered by the question: _does capital exist in China?_
