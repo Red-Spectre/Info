@@ -162,6 +162,53 @@ If tiny Albania could move to Socialism with much less wealth or technology, Wit
 
 Besides, How long did the NEP take(Around 7 years, 4 of war and 3 of peace) compared to the Chinese reforms? I would justify 5 years of NEP peace, 7 years, 10 years - Hell, Even 15 I could _somehow_ understand. But even if we ignore Mao completely Dengs reforms have been in place for over **fourty years.**  
 
+### If Capital must take control of the State, Why did the USSR survive the NEP and continued Socialist construction?  
+
+The unsatisfying answer would be "Dictatorship of the Proletariat and its short timeframe". But equally as important to this are the measures taken to prevent Capital from attaining "omnipotence".
+
+> At present, **imperialism and the domination of the banks have “developed” into an exceptional art both
+these methods of upholding and giving effect to the omnipotence of wealth in democratic republics of all
+descriptions.**  
+[...]  
+Another reason why the **omnipotence of “wealth” is more certain in a democratic republic is that it does not
+depend on defects in the political machinery or on the faulty political shell of capitalism.** A democratic
+republic is the best possible political shell for capitalism, and, therefore, once capital has gained possession
+of this very best shell (through the Palchinskys, Chernovs, Tseretelis and Co.), it establishes its power so
+securely, so firmly, that no change of persons, institutions or parties in the bourgeois-democratic republic
+can shake it.
+
+-_**Lenin**, [State and Revolution](https://www.marxists.org/ebooks/lenin/state-and-revolution.pdf), P10_
+
+A big measure taken by the Bolsheviks to that end, one which is imperative when using state-capitalism to build socialism, was the **foreign trade monopoly.**  
+In relation to a resolution that relaxed this monopoly (and **luckily** was never carried out. Lenin requested the matter to be postponed and the trade monopoly was affirmed) in 1922, discussed when Lenin could not attend, he remarked:
+
+> In actual fact, however, this wrecks the foreign trade monopoly. Small wonder that Comrade Sokolnikov has been trying to get this done and has succeeded. He has always been for it; he likes paradoxes and has always undertaken to prove that monopoly is not to our advantage. But it is surprising that people, who in principle favour the monopoly, have voted for this without asking for detailed information from any of the business executives.
+What does the decision that has been adopted signify?
+Purchasing offices are being opened for the import and export trade. The owner of such an office has the right to buy and sell only specially listed goods.
+Where is the control over this? Where are the means of control?
+In Russia flax costs 4 rubles 50 kopeks, in Britain it costs 14 rubles. All of us have read in Capital how capitalism changes internally and grows more daring when interest rates and profits rise quickly. All of us recall that capitalism is capable of taking deadly risks and that Marx recognised this long before the war and before capitalism began its "leaps".
+What is the situation now? What force is capable of holding the peasants and the traders from extremely profitable deals? Cover Russia with a network of overseers? Catch the neighbour in a purchasing office and prove that his flax has been sold to be smuggled out of the country?
+Comrade Sokolnikov’s paradoxes are always clever, but one must distinguish between paradoxes and the grim truth.   
+[...]   
+I propose that the decision on this question be deferred for two months, i.e., until the next Plenary Meeting; in the interim information and verified documents on the experience of our trade policy should be collected.   
+[...]  
+P.P.S. I have just been informed (1.30 hours) that some business executives have applied for a postponement. I have not yet read this application, but I whole-heartedly support it. It is only a matter of two months. 
+
+-_**Lenin**, [Letter To J. V. Stalin For Members Of The C.C., R.C.P.(B.): The Foreign Trade Monopoly](https://www.marxists.org/archive/lenin/works/1922/oct/12.htm)_
+
+And to refute a myth before the Trots create it, Stalin agreed with this point:
+
+> Fifthly. The congress re-affirmed the inviolability of our monopoly of foreign trade. I do not think there is any need to explain the importance of the foreign trade monopoly for our industry and agriculture as well as for the bond between the two. Its cardinal significance requires no fresh proof (see the resolution on the Central Committee’s report). 
+
+-_**Stalin**, [The Results of the Thirteen Congress of the R.C.P.(B.)](https://www.marxists.org/reference/archive/stalin/works/1924/06/17.htm)_
+
+China has consistently liberalised their foreign trade laws. In 2004:
+
+> [Fully liberalizing access to foreign trade operations. According to the Foreign Trade Law of the People's Republic of China that was revised in 2004, starting from July 2004, foreign trade dealers only need to register with the authority responsible, and no longer have to ask for approval from the Chinese government. This change has facilitated the diversification of China's foreign trade entities, consisting of state-owned, foreign-invested and private enterprises. The imports and exports of state-owned and foreign-invested enterprises have maintained sustained growth, while private enterprises have seen their foreign trade develop rapidly and their share of China's import and export market keeps expanding, becoming key players in China's foreign trade. In 2010 the import and export volume of state-owned enterprises, foreign-invested enterprises and private enterprises in the country's total was 20.9 percent, 53.8 percent and 25.3 percent, respectively.](https://www.mfa.gov.cn/ce/cezw//eng/zgjj/t975215.htm)
+
+Not only allowing private foreign trade, but having 25% of it be private - more then that of the SOEs cannot but create this omnipotence of capital, leading to it taking control of the republic.
+
+
 ## When discussing productive forces, We cannot forget the relations of production
 
 The most adamant of the defenders of the "C"PC speak about "productive forces" so much it became a meme. In truth, However, Everyone using the productive forces argument to defend the exploitative Chinese state reveal a schism which eclipses the distance between pluto and the sun, A schism between themselves and anything Marxist.   
