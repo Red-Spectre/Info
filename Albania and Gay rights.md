@@ -1,3 +1,12 @@
+<p align="center">
+  The Marxists-Leninists are not conservative and fanticals, as the revisionists and the bourgeois charge. On the contrary, they are the most progressive people, resolute fighters against everything outdated and backward. They stand firmly on the positions of the new and fight with all their might for its victory.
+</p>
+<p align="right">
+  -Enver Hoxha, Works vol. 6, P447-448
+  <br> <br>
+</p>
+  
+  
 Anticommunist myths come a dime a dozen. To retell a joke I read somewhere: "one can take any death toll attributed to Stalin, triple it, and call its originator a Stalin apologist."   
   
 But unlike most such myths, "Hoxha's Albania gave 10 years for being gay" has no easy answer online. With any luck this short article will change that.  
@@ -32,7 +41,7 @@ It is worth noting that I found no reliable evidence of Homosexuals being impris
 <details>
   <summary>TW: Click here to open</summary>
   
-  One of the troubles the Albanian party had to deal with was a practice called "Pederasty". The form it commmonly took in Albania was men aged 16 - 24 to court boys aged 12-17. There were numerous cases of men older then 24 and younger then 16 respectively. There were also cases of a disgusting practice of quote-unquote "marriage" being arranged in such cases. This practice existed at the very least in the early 1800s and continued well into the 20th century. It was done away with only due to the measures of the Albanian party of Labour.   
+  One of the troubles the Albanian party had to deal with was a practice called "Pederasty". The form it commmonly took in Albania was men aged 16 - 24 courting boys aged 12-17. There were numerous cases of men older then 24 and younger then 16 respectively. There were also cases of a disgusting practice of quote-unquote "marriage" being arranged in such cases. This practice existed at the very least in the early 1800s and continued well into the 20th century. It was done away with only due to the measures of the Albanian party of Labour.   
   
   In the [1977 Albanian Penal Code](http://ciml.250x.com/archive/albania/albanian/kodi_penal_15_6_1977_albanian.pdf), Articles 97 - 99 punish:   
   Rape by up to 10 years, at least 10 if it caused "serious consequences for health"  
