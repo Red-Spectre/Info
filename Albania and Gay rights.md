@@ -49,12 +49,12 @@ It is worth noting that I found no reliable evidence of Homosexuals being impris
   Committing "Shameful acts" with anyone under 14 by 5 years.  
   
   
-  "But wait!",  I hear you ask - "Does that mean Albania went full Ancap by allowing adults to molest kids aged 14+, provided they gaslight the child to saying it was "consensual"?   **Ridiculous.** Article 137, often falsely cited as an antihomosexual law, existed __exactly__ to prevent this type of pedophilia.
+  "But wait!",  I hear you ask - "Does that mean pedophilia over 14 was legal? there was no law against it?" **Ridiculous.** Article 137, often falsely cited as an antihomosexual law, existed __exactly__ to prevent this type of pedophilia.
   
   > Pederasty is punished:
 with deprivation of liberty for up to ten years.  
   
-  Instead we are expected to believe the absurdity presented in the above question. You tell me what makes more sense.   
+  Instead we are expected to believe the absurdity presented in the above question as a "yes". You tell me what makes more sense.   
   
   What does this mean? It means that Socialist Albania did not abuse teenagers with abstinence drilling, allowing young couples to do whatever so long as they consent, while keeping the pedos out. This law was not aimed at Homosexuals, it was necessary to protect teenagers after putting the age of consent at 14. To summarise with a few examples:   
   
