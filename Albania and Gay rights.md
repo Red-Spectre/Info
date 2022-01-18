@@ -45,7 +45,7 @@ It is worth noting that I found no reliable evidence of Homosexuals being impris
   
   In the [1977 Albanian Penal Code](http://ciml.250x.com/archive/albania/albanian/kodi_penal_15_6_1977_albanian.pdf), Articles 97 - 99 punish:   
   Rape by up to 10 years, at least 10 if it caused "serious consequences for health"  
-  Intercourse with a girl below 14 with up to 15 years, at least 10 of committed "with violence"  
+  Intercourse with a girl below 14 with up to 15 years, at least 10 if committed "with violence"  
   Committing "Shameful acts" with anyone under 14 by 5 years.  
   
   
