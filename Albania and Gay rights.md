@@ -13,7 +13,7 @@ But unlike most such myths, "Hoxha's Albania gave 10 years for being gay" has no
   
 Let us get to it, then.
 # Albania and Gay rights - the easy answer
-Straight up(excuse the pun), how bad was the situation there?  
+To begin let us ask, how bad was the situation there?  
 Trick question. From 1977 the situation was very good. Then, Homosexuality was legalised not only for adults but for under-aged couples as well.  
   
 In 1982, a Western initiative called "International Gay Association"(IGA, created a few years prior) launched a report about Gay rights in Eastern Europe. In it they proclaimed skepticism about the translation quality of the penal code - Because if it was true, [Albania would have had "the most liberal laws concerning homosexuality in the whole of Europe!"](https://cb65b51b-c150-4b9e-875d-05ed09f9e8c9.filesusr.com/ugd/90d4c0_2b1299dc69874002bc7690877e9d08df.pdf)
@@ -64,7 +64,7 @@ with deprivation of liberty for up to ten years.
   
     [For more information](https://en-academic.com/dic.nsf/enwiki/3107397)
   
-  In my opinion these laws help create an environment free both from religious sexual oppression and child abusers. This unknown part of our history is not one we need to apologise for - like the propagandists and ideologues of reaction hypocritically claim. Far from it. We need to take pride (pun intended) in it, in this colossal and tragically overlooked achievement woven into our history by the valiant Albanian party, under the wise leadership of Enver Hoxha. This was not, as its claimed, a remnant of reaction, a cancer we failed to do away with, this was not the continued oppression of our homosexual comrades but a step to their emancipation in a time prejudice was much stronger compared to today - leaping over all of "Liberal and Free" Europe to step closer to liberation. Instead of disavowing this road due to the lies of the class enemy we must uphold it as a testament of the just nature of Marxism-Leninism - And to continue our endless march of progress on it.  
+  In my opinion these laws help create an environment free both from religious sexual oppression and child abusers. This unknown part of our history is not one we need to apologise for - like the propagandists and ideologues of reaction hypocritically claim. Far from it. We need to take pride in it, in this colossal and tragically overlooked achievement woven into our history by the valiant Albanian party, under the wise leadership of Enver Hoxha. This was not, as its claimed, a remnant of reaction, a cancer we failed to do away with, this was not the continued oppression of our homosexual comrades but a step to their emancipation in a time prejudice was much stronger compared to today - leaping over all of "Liberal and Free" Europe to step closer to liberation. Instead of disavowing this road due to the lies of the class enemy we must uphold it as a testament of the just nature of Marxism-Leninism - And to continue our endless march of progress on it.  
   **Let us remember and defend our past so we may forge a better future.**
   
   # Workers of the world, Unite!
