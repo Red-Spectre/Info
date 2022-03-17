@@ -2,7 +2,13 @@
 ## W.I.P: Very early version! Last updated: 17/03/2022
 I decided to release this version despite its incompleteness, as I know it can be useful despite its early stage. 
 
-
+- [Trotskyist myths and Stalinist reality](https://github.com/Red-Spectre/Info/blob/main/Against%20Trotskyism.md#part-1-trotskyist-myths-and-stalinist-reality)
+ - [Did Lenin hate Stalin?](https://github.com/Red-Spectre/Info/blob/main/Against%20Trotskyism.md#11-did-lenin-hate-stalin)
+   - [Lenin on Trotsky](https://github.com/Red-Spectre/Info/blob/main/Against%20Trotskyism.md#11-lenin-on-trotsky)
+ - [Did Lenin support Socialism in one country, or the permanent revolution?](https://github.com/Red-Spectre/Info/blob/main/Against%20Trotskyism.md#12-did-lenin-support-socialism-in-one-country-or-the-permanent-revolution)
+   - [Was the April thesis a adoption of Trotsky's ideas?](https://github.com/Red-Spectre/Info/blob/main/Against%20Trotskyism.md#121-was-the-april-thesis-a-adoption-of-trotskys-ideas)
+ - [Stalin never outmaneuvered Trotsky - He outdid him.](https://github.com/Red-Spectre/Info/blob/main/Against%20Trotskyism.md#13-stalin-never-outmaneuvered-trotsky---he-outdid-him)
+   - [Stalin was not allowed to resign](https://github.com/Red-Spectre/Info/blob/main/Against%20Trotskyism.md#131-stalin-was-not-allowed-to-resign) 
 
 ## Part 1: Trotskyist myths and Stalinist reality
 
