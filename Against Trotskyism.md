@@ -1,6 +1,7 @@
 # Against Trotskyism
-## W.I.P: Very early version!
+## W.I.P: Very early version! Last updated: 17/03/2022
 I decided to release this version despite its incompleteness, as I know it can be useful despite its early stage. 
+
 
 
 ## Part 1: Trotskyist myths and Stalinist reality
@@ -322,5 +323,132 @@ Author's note | 2022 | My home | It is important to mention, the above article o
 
 Evidently, The rude factionalist Lenin hated was __Trotsky.__ Name me another person Lenin criticised so much; Kautsky, perhaps!  
 For your information, this list **is not even completed(yet)** and I have no idea how much more material against Trotsky remains. This list will be updated further.
+
+
+### 1.2: Did Lenin support Socialism in one country, or the permanent revolution?
+One myth Kautskyists in denial like to repeat like a broken record is this. Lenin supported what he termed Trotsky's "absurd thesis". Evidently their understanding of Lenin's views differs little then their understanding of friendships. Much like its creators, this myth is a good-for-nothing rabid animal that needs to be put down.
+
+> Trotsky was an ardent Menshevik, i. e., he deserted from the Iskrists to the Economists. He said that “between the old Iskra and the new lies a gulf”. In 1904—05, he deserted the Mensheviks and occupied a vacillating position, now co-operating with Martynov (the Economist), now proclaiming his absurdly Left “permanent revolution” theory.
+
+-_**Lenin**, [Disruption of Unity Under Cover of Outcries for Unity](https://www.marxists.org/archive/lenin/works/1914/may/x01.htm)_
+
+"Socialism in one country" is one of Lenin's most important contributions. You read that sentence correctly.
+
+> Thirdly, the victory of socialism in one country does not at one stroke eliminate all wars in general. On the contrary, it presupposes wars. The development of capitalism proceeds extremely unevenly in different countries. It cannot be otherwise under commodity production. From this it follows irrefutably that socialism cannot achieve victory simultaneously in all countries. It will achieve victory first in one or several countries, while the others will for some time remain bourgeois or pre-bourgeois. This is bound to create not only friction, but a direct attempt on the part of the bourgeoisie of other countries to crush the socialist state’s victorious proletariat. In such cases, a war on our part would be a legitimate and just war. It would be a war for socialism, for the liberation of other nations from the bourgeoisie. Engels was perfectly right when, in his letter to Kautsky of September 12, 1882, he clearly stated that it was possible for already victorious socialism to wage “defensive wars”. What he had in mind was defense of the victorious proletariat against the bourgeoisie of other countries. 
+
+-_**Lenin**, [The Military Programme of the Proletarian Revolution](https://www.marxists.org/archive/lenin/works/1916/miliprog/i.htm)_
+
+> The capitalists, the bourgeoisie, can at “best” put off the victory of socialism in one country or another at the cost of slaughtering further hundreds of thousands of workers and peasants. But they cannot save capitalism. The Soviet Republic has come to take the place of capitalism, the Republic which gives power to the working people and only to the working people, which entrusts the proletariat with the guidance of their liberation, which abolishes private property in land, factories and other means of production, because this private property is the source of the exploitation of the many by the few, the source of mass poverty, the source of predatory wars between nations, wars that enrich only the capitalists.
+
+-_**Lenin**, [To An American Journalist’s Questions](https://www.marxists.org/archive/lenin/works/1919/jul/20.htm)_
+
+> Our press has always spoken of the need to prepare fora revolutionary war in the event of the victory of socialism in one country with capitalism still in existence in theneighbouring countries. That is indisputable.
+> Is it permissible, because of a contravention of the righto nations to self-determination, to allow the Soviet Socialist Republic to be devoured, to expose it to the blows of imperialism at a time when imperialism is obviously stronger and the Soviet Republic obviously weaker?
+
+-_**Lenin**, [The Revolutionary Phrase](https://www.marxists.org/archive/lenin/works/1918/feb/21a.htm)_
+
+> And with us will go the masses of the more advanced countries, countries which have been divided by a predatory war, whose workers have passed through a longer period of training in democracy. When people depict the difficulties of our task, when we are told that the victory of socialism is possible only on a world scale, we regard this merely as an attempt, a particularly hopeless attempt, on the part of the bourgeoisie and of its voluntary and involuntary supporters to distort the irrefutable truth. The final victory of socialism in a single country is of course impossible. Our contingent of workers and peasants which is upholding Soviet power is one of the contingents of the great world army, which at present has been split by the world war, but which is striving for unity, and every piece of information, every fragment of a report about our revolution, every name, the proletariat greets with loud and sympathetic cheers, because it knows that in Russia the common cause is being pursued, the cause of the proletariat’s uprising, the international socialist revolution. A living example, tackling the job somewhere in one country is more effective than any proclamations and conferences; this is what inspires the working people in all countries.
+
+-_**Lenin**, [Third All-Russia Congress Of Soviets Of Workers’, Soldiers’ And Peasants’ Deputies](https://www.marxists.org/archive/lenin/works/1918/jan/10.htm)_
+
+> Uneven economic and political development is an absolute law of capitalism. Hence, the victory of socialism is possible first in several or even in one capitalist country alone. After expropriating the capitalists and organising their own socialist production, the victorious proletariat of that country will arise against the rest of the world—the capitalist world—attracting to its cause the oppressed classes of other countries, stirring uprisings in those countries against the capitalists, and in case of need using even armed force against the exploiting classes and their states. The political form of a society wherein the proletariat is victorious in overthrowing the bourgeoisie will be a democratic republic, which will more and more concentrate the forces of the proletariat of a given nation or nations, in the struggle against states that have not yet gone over to socialism. The abolition of classes is impossible without a dictatorship of the oppressed class, of the proletariat. A free union of nations in socialism is impossible without a more or less prolonged and stubborn   struggle of the socialist republics against the backward states. 
+
+-_**Lenin**, [On the Slogan for a United States of Europe](https://www.marxists.org/archive/lenin/works/1915/aug/23.htm)_
+
+[More here](https://espressostalinist.com/2012/03/11/lenin-on-socialism-in-one-country-2/)
+
+Stalin correctly attributed it to Lenin as well. Stalin developed it, but it started with Lenin.
+> Lenin, taking as his basis the law of the uneven development of the imperialist states, opposed to the opportunists his theory of the proletarian revolution about the victory of socialism in one country, even if that country is one in which capitalism is less developed.
+>It is well known that the October Revolution fully confirmed the correctness of Lenin's theory of the proletarian revolution. 
+
+-_**Stalin**, [The October Revolution and the Tactics of the Russian Communists](https://www.marxists.org/reference/archive/stalin/works/1924/12.htm)_
+
+#### 1.2.1: Was the April thesis a adoption of Trotsky's ideas?
+A myth propagated by people who do not read Lenin, for people who do not read Lenin. Nothing in the article supports this. Quite the contrary, Lenin adhered to the two stage theory Trotsky denied:
+> The specific feature of the present situation in Russia is that the country is passing from the first stage of the revolution—which, owing to the insufficient class-consciousness and organisation of the proletariat, placed power in the hands of the bourgeoisie—to its second stage, which must place power in the hands of the proletariat and the poorest sections of the peasants. 
+
+-_**Lenin**, [The April Theses](https://www.marxists.org/archive/lenin/works/1917/apr/04.htm)_
+I am aware of a certain dishonest argument regarding Lenin's "Letter on Tactics", released shortly after the April Theses. They regard the following as agreement with Trotsky:
+> The person who now speaks only of a “revolutionary democratic dictatorship of the proletariat and the peasantry” is behind the times, consequently, he has in effect gone over to the petty bourgeoisie against the proletarian class struggle; that person should be consigned to the archive of “Bolshevik” pre-revolutionary antiques (it may be called the archive of “old Bolsheviks”). 
+
+-_**Lenin**, [Letters on Tactics](https://www.marxists.org/archive/lenin/works/1917/apr/x01.htm)_
+Yet just 3 paragraphs above exists a refutation of this anti-leninist slander:
+> ’The revolutionary-democratic dictatorship of the proletariat and the peasantry” has already become a reality in the Russian revolution, for this “formula” envisages only a relation of classes, and not a concrete political institution implementing this relation, this co-operation. “The Soviet of Workers’ and Soldiers’ Deputies”—there you have the “revolutionary-democratic dictatorship of the proletariat and the peasantry” already accomplished in reality.   
+
+-_**Lenin**, [Letters on Tactics](https://www.marxists.org/archive/lenin/works/1917/apr/x01.htm)_
+
+Likewise, just one paragraph below:
+> The revolutionary-democratic dictatorship of the proletariat and the peasantry has already been realised, but in a highly original manner, and with a number of extremely important modifications. I shall deal with them separately in one of my next letters. For the present, it is essential to grasp the incontestable truth that a Marxist must take cognisance of real life, of the true facts of reality, and not cling to a theory of yesterday, which, like all theories, at best only outlines the main and the general, only comes near to embracing life in all its complexity. 
+
+-_**Lenin**, [Letters on Tactics](https://www.marxists.org/archive/lenin/works/1917/apr/x01.htm)_
+
+Trotsky himself termed the April theses "paradoxical".
+> In his April theses which seemed so paradoxical, Lenin was relying against the old formula upon the living tradition of the party – its irreconcilable attitude to the ruling classes and its hostility to all half-way measures – whereas the “old Bolsheviks” were opposing a still fresh although already outdated memory to the concrete development of the class struggle.
+
+-_Trotsky, [The History of the Russian Revolution](https://www.marxists.org/archive/trotsky/1930/hrr/ch16.htm)_
+
+And in the same month as the release of the April Theses, Lenin criticised Trotsky(ism).
+> Trotskyism: “No tsar, but a workers’ government.” This is wrong. A petty bourgeoisie exists, and it cannot be dismissed. But it is in two parts. The poorer of the two is with the working class. 
+
+-_**Lenin**, [The Petrograd City Conference of the R.S.D.L.P.](https://www.marxists.org/archive/lenin/works/1917/petcconf/14b.htm)_  
+
+> I might be incurring this danger if I said: “No Tsar, but a workers’ government.”[13] But I did not say that, I said something else. I said that there can be no government (barring a bourgeois government) in Russia other than that of the Soviets of Workers’, Agricultural Labourers’, Soldiers’, and Peasants’ Deputies.I said that power in Russia now can pass from Guchkov and Lvov only to these Soviets. And in these Soviets, as it happens, it is the peasants, the soldiers, i.e., petty bourgeoisie, who preponderate, to use a scientific, Marxist term, a class characterisation, and not a common, man-in-the-street, professional characterisation.
+> In my theses, I absolutely ensured myself against skipping over the peasant movement, which has not outlived itself, or the petty-bourgeois movement in general, against any playing at “seizure of power” by a workers’ government, against any kind of Blanquist adventurism;
+
+-_**Lenin**, [Letters on Tactics](https://www.marxists.org/archive/lenin/works/1917/apr/x01.htm)_
+
+> If we had said, “No tsar, but a dictatorship of the proletariat”, well, this would have meant skipping over the petty bourgeoisie. But what we are saying is—help the revolution through the Soviets. We must not lapse into reformism. We are fighting to win, not to lose. At the worst we count on partial success. Even if we suffer defeat we shall achieve partial success. We shall get reforms. Reforms are an auxiliary instrument of the class struggle. 
+
+-_**Lenin**, [The Seventh (April) All-Russia Conference of the R.S.D.L.P.(B.)](https://www.marxists.org/archive/lenin/works/1917/7thconf/24d.htm)_  
+
+And as expected, doubted Trotsky and his standing.
+> Trotsky, when editing his paper in Paris, never made it clear whether he was for or against Chkheidze. We have always spoken against Chkheidze, because he is a subtle mask for chauvinism. Trotsky has never made himself clear. How do we know that Larin, the editor of Internatsional, does not follow the same tactics? 
+
+-_**Lenin**, [The Petrograd City Conference of the R.S.D.L.P.](https://www.marxists.org/archive/lenin/works/1917/petcconf/14b.htm)_
+
+So many quotes wasted on an argument so devoid of merit...   
+But at least its out of the way.
+
+
+### 1.3: Stalin never outmaneuvered Trotsky - He outdid him.
+Another meritless myth Trots adore. Stalin, the ""cunning but dimwitted brute"" had ""stolen the party leadership from Trotsky"" using dubious means. I object to this view. The only crime Stalin was guilty of is being objectively better then Trotsky in every single metric.
+
+For example, in 1927, a party referendum "narrowly" voted for Stalin, instead of for Trotsky: 724,000 for the former, 4,000 to the latter.
+
+> The results of the discussion? The results are known. Up to yesterday, it turns out, 724,000 comrades voted for the Party and a little over 4,000 voted for the opposition. Such are the results. Our oppositionists thundered that the Central Committee had become divorced from the Party, that the Party had become divorced from the class, that if "ifs" and "ans" were pots and pans they, the oppositionists, would certainly have had 99 per cent on their side. But since "ifs" and "ans" are not pots and pans, it turns out that the opposition has not even one per cent. Such are the results.
+
+_**Stalin**, [The Fifteenth Congress of the CPSU](https://www.marxists.org/reference/archive/stalin/works/1927/12/02.htm)_
+But don't take my word for it; [The Real Stalin Series](https://espressostalinist.com/the-real-stalin-series/opposition/) has *multiple* sources confirming this claim!
+
+Once again, a vote was taken on the subject of Trotsky and his Opposition. In a general referendum of all Bolshevik party members the overwhelming majority, by a vote of 740,000 to 4000, repudiated the Trotskyite Opposition and declared themselves in favor of Stalin’s administration.
+Sayers and Kahn. The Great Conspiracy. Boston: Little, Brown and Company, 1946, p. 203
+
+That Stalin had the Party membership solidly behind him in this controversy with Trotsky and his group is shown by a 1927 Party referendum in which the Trotskyist program was defeated by 725,000 votes to 6,000. Cameron, Kenneth Neill. Stalin, Man of Contradiction. Toronto: NC Press, c1987, p. 48
+
+But before this step was taken there was a Party referendum on the question of the opposition policy– 724,000 members voted for the line of the Party, 4000 members voted for the Trotskyists and 2600 abstained from voting. Campbell, J. R. Soviet Policy and Its Critics. London: V. Gollancz, ltd., 1939, p. 40
+
+
+#### 1.3.1: Stalin was not allowed to resign
+
+The first three were covered by "[Socialist ML Musings](https://socialistmlmusings.wordpress.com/2017/02/23/stalins-four-attempts-at-resignation/)". In 1925, 1926, and 1927 he presented his formal requests to resign. The first one, for example, was _unanimously rejected_ by all the delegates, Including _**Trotsky.**_ Stalin explained that: 
+
+> What could I do? Desert my post? That is not in my nature; I have never deserted any post, and I have no right to do so, for that would be desertion. As > I have already said before, I am not a free agent, and when the Party imposes an obligation upon me, I must obey.
+> A year later I again put in a request to the plenum to release me, but I was again obliged to remain at my post.
+> What else could I do?
+
+_**Stalin**, [The Trotskyist Opposition Before and Now](https://www.marxists.org/reference/archive/stalin/works/1927/10/23.htm#1), 1927_
+
+The fourth one is more obscure; Even in 1952, when Stalin asked to be replaced due to being old, the central committee denied his request.
+"Stalin, standing on the podium and looking into the hall, began talking about his old age and that he was unable to perform all the duties assigned to him. He can continue to carry out his duties as Chairman of the Council of Ministers, and presiding over meetings of the Politburo as before, but he is no longer able to preside over meetings of the Secretariat of the Central Committe, as the General Secretary. Therefore, he asks to be released from that position, and for his request to be respected".
+
+Malenkov was the first to respond, with the Author describimg him as as having "an expression of a person seeing more clearly then all others the deadly danger that hangs over everyones heads and has not been realised; it is impossible to agree to the request of Comrade Stalin, impossible to agree for him to resign from this position". Malenkov responded: "No, we ask you to stay!", after which the hall "buzzed with words": "No! You cannot! You must stay! Please take your request back!" and more.
+
+After which Malenkov said: "Comrades! We must all unanimously ask Comrade Stalin, our leader and teacher, to continue being the General Secretary of the CPSU", followed by stormy applause.
+
+Stalin responded: "There is no need to applause at the Plenum of the Central Committe. It is necessary to resolve issues without emotions, in a professional way, and I ask you to releas eme from the duties of teh General Secretary and Chairman of the Council of Ministers. I'm already old. I don't read papers anymore. Choose another secretary".
+
+Marshal S.K. Timoshenko: "Comrade Stalin, the people will not understand this. We all as one elect you as our leader - The General Secretary of the Central Committee. There can be no other solution". Applauses ensued again. Stalin stood looking into the hall, waved his hand, and sat down.
+
+(Рудольф Баландин, "Завещание Сталина". Rudolf Baladin, "Stalin's testament", P100-102)
 
 
