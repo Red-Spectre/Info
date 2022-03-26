@@ -16,5 +16,14 @@ Feel free to join, contribute and learn with us.
 
 https://discord.gg/gQUUPq7fEe
 
+## Contact us!
+**Discord:**   
+- Tapood#6952    
+  
+**Twitter:**    
+- [Our official twitter](https://twitter.com/MLeninists)    
+- [Andrei Zhdanov](https://twitter.com/ZhdanovAndrei)    
+
+
 # Workers of the world, Unite!
 ![banner](/Assets/Images/PPSH.png)
