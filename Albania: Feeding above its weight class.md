@@ -2,9 +2,9 @@
 
 This short article is meant to elucidate the food situation in Socialist Albania. Today is a sad day to be a Liberal, as the proponents of "Socialism is when no food" prove "Anticommunism is when denying reality".
 
-- [Socialism fed the people](https://github.com/Red-Spectre/Info/new/main#socialism-fed-the-people)
-- [Socialism fed the people *well*](https://github.com/Red-Spectre/Info/new/main#socialism-fed-the-people-well)
-- [Vegetables growth from 1950 to the 1990s](https://github.com/Red-Spectre/Info/new/main#vegetables-growth-from-1950-to-the-1990s)
+- [Socialism fed the people](https://github.com/Red-Spectre/Info/blob/main/Albania:%20Feeding%20above%20its%20weight%20class.md#socialism-fed-the-people)
+- [Socialism fed the people *well*](https://github.com/Red-Spectre/Info/blob/main/Albania:%20Feeding%20above%20its%20weight%20class.md#socialism-fed-the-people-well)
+- [Vegetables growth from 1950 to the 1990s](https://github.com/Red-Spectre/Info/blob/main/Albania:%20Feeding%20above%20its%20weight%20class.md#vegetables-growth-from-1950-to-the-1990s)
 
 ## Socialism fed the people
 Firstly, the [statistics for Albania](http://www.instat.gov.al/media/6230/vjetari-statistikor-i-shqiperise-1991_.pdf):    
