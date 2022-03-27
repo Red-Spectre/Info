@@ -1,5 +1,14 @@
 Left communists love to slander the USSR, Stalin, and Marxism by claiming we haven’t read enough theory to know that commodity production cannot exist in socialism. This work is dedicated to showing that left communism is what happens when you don’t read carefully enough. 
 
+- [Marx explains what necessitates capital:](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#marx-explains-what-necessitates-capital)
+- [Engels explaining he sees the cooperatives as a viable transition:](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#engels-explaining-he-sees-the-cooperatives-as-a-viable-transition)
+- [Engels explains neither him nor Marx ever doubted use of cooperatives in societal transformation](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#engels-explaining-he-sees-the-cooperatives-as-a-viable-transition)
+- [Lenin’s equation of capitalist Agriculture](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#lenins-equation-of-capitalist-agriculture)
+- [Lenin intended for cooperatives to exist all along](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#lenin-intended-for-cooperatives-to-exist-all-along)
+- [Lenin even calls it socialism (not transitory phase, but socialism)](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#lenin-even-calls-it-socialism-not-transitory-phase-but-socialism)
+- [Lenin calls for exchange of commodities](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#lenin-calls-for-exchange-of-commodities)
+- [Stalin’s Justifications](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#stalins-justifications)
+- [Conclusions](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#conclusions)
 
 # Marx explains what necessitates capital:
 
