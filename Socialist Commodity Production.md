@@ -49,7 +49,7 @@ Left communists love to slander the USSR, Stalin, and Marxism by claiming we hav
 # Lenin’s equation of capitalist Agriculture
 
 ## **Capitalist agriculture = commodity production + wage labour.**
-
+![SocCod](Assets/Images/SocialistCommodities/SocCod.jpg)  
 [Lenin: Collected Works, Volume 40, Page 44](https://www.marxists.org/archive/lenin/works/cw/pdf/lenin-cw-vol-40.pdf)
 
 
