@@ -451,7 +451,7 @@ Malenkov was the first to respond, with the Author describimg him as as having "
 
 After which Malenkov said: "Comrades! We must all unanimously ask Comrade Stalin, our leader and teacher, to continue being the General Secretary of the CPSU", followed by stormy applause.
 
-Stalin responded: "There is no need to applause at the Plenum of the Central Committe. It is necessary to resolve issues without emotions, in a professional way, and I ask you to releas eme from the duties of teh General Secretary and Chairman of the Council of Ministers. I'm already old. I don't read papers anymore. Choose another secretary".
+Stalin responded: "There is no need to applause at the Plenum of the Central Committe. It is necessary to resolve issues without emotions, in a professional way, and I ask you to release me from the duties of the General Secretary and Chairman of the Council of Ministers. I'm already old. I don't read papers anymore. Choose another secretary".
 
 Marshal S.K. Timoshenko: "Comrade Stalin, the people will not understand this. We all as one elect you as our leader - The General Secretary of the Central Committee. There can be no other solution". Applauses ensued again. Stalin stood looking into the hall, waved his hand, and sat down.
 
