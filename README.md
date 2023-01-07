@@ -1,7 +1,8 @@
 "Red Spectre" is a project meant to provide Marxists with important and lesser known knowledge, provide answers for overlooked historical questions, and provide theoretical explanations in an approachable and well sourced manner. All of our works are living articles, meaning they will be updated and improved over time. We are open for new authors, writers, advisors, and other additions to the team.
 
 Our current works:
-- [Editorial: How Ultra"Left" racism is sabotaging our movement](https://github.com/Red-Spectre/Info/blob/main/Editorial:%20How%20Ultra%22Left%22%20racism%20is%20sabotaging%20our%20movement.md) [New!]
+- [Against Maga-Communism](https://github.com/Red-Spectre/Info/blob/main/Against%20Maga-Communism.md) [New!]
+- [Editorial: How Ultra"Left" racism is sabotaging our movement](https://github.com/Red-Spectre/Info/blob/main/Editorial:%20How%20Ultra%22Left%22%20racism%20is%20sabotaging%20our%20movement.md) 
 - [Socialist Commodity Production](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md) 
 - [Albania: Feeding above its weight class](https://github.com/Red-Spectre/Info/blob/main/Albania:%20Feeding%20above%20its%20weight%20class.md) 
 - [1945 - 1953: Europe wanted Stalin!](https://github.com/Red-Spectre/Info/blob/main/1945%20-%201953:%20Europe%20wanted%20Stalin!.md) 
