@@ -88,19 +88,11 @@ Left communists love to slander the USSR, Stalin, and Marxism by claiming we hav
 
 > In order to raise collective-farm property to the level of public property, the surplus collective-farm output must be excluded from the system of commodity circulation and included in the system of products-exchange between state industry and the collective farms. That is the point.
 
-[Stalin: The Economic Problems of the USSR, Page 96](http://marx2mao.com/Stalin/EPS52.pdf)
 
 
 > But what, then, should be done to elevate collective-farm property to the level of public property? The collective farm is an unusual kind of enterprise. It operates on land, and cultivates land which has long been public, and not collective-farm property. Consequently, the collective farm is not the owner of the land it cultivates. Further, the collective farm operates with basic implements of production which are public, not collective-farm property. Consequently, the collective farm is not the owner of its basic implements of production. Further, the collective farm is a cooperative enterprise: it utilizes the labour of its members, and it distributes its income among its members on the basis of workday units; it owns its seed, which is renewed every year and goes into production. What, then, does the collective farm own? Where is the collective-farm property which it disposes of quite freely, at its own discretion? This property of the collective farm is its product, the product of collective farming: grain, meat, butter, vegetables, cotton, sugar beet, flax, etc., not counting the buildings and the personal husbandry of the collective farmers on their household plots. The fact is that a considerable part of this product, the surplus collective-farm output, goes into the market and is thus included in the system of commodity circulation. It is precisely this circumstance which now prevents the elevation of collective-farm property to the level of public property. It is therefore precisely from this end that the work of elevating collectivefarm property to the level of public property must be tackled. In order to raise collective-farm property to the level of public property, the surplus collective-farm output must be excluded from the system of commodity circulation and in- 98 cluded in the system of products-exchange between state industry and the collective farms. That is the point.
 
 [Stalin: The Economic Problems of the USSR, Page 97](http://marx2mao.com/Stalin/EPS52.pdf)
 
-
-# Conclusions
-
-Stalin's goal with economic problems of socialism in the USSR was not to defend socialist commodity production, but to discuss it honestly as an objective social phenomenon, as an obstacle to socialist development, a remnant, a concession, etc. And discuss how to actually rid the USSR of it. This was one of his main theses of the Economic Problems of the Soviet Union.
-
-
-The crux of the left communists of today lies in ignorance, the same force powering fascist fanaticism. Freedom comes not in concessions of rights but in knowledge of the laws, facts, and conditions of reality itself. So, two poles exist here. One, a path of enslavement, chaining a person’s mind to the will of another, and another path that is liberating them. Left Communists are a group of enslavers who wish to keep people chained to capital, even if in word they think they are fighting against the “evils of Stalinism”, they in deeds are keeping the working class stupid and confused by conflating Stalin, Lenin, Marx against each other. Such a reactionary ideology is now laid bare in the sun for all to see, in all its fraudulence. 
 
 # Workers of the World Unite!

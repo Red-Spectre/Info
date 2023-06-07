@@ -690,13 +690,7 @@ Adopting the petty-bourgeoisie point of view, struggling against "big capital" w
 
 I’m certain Kautsky will be happy to hear a new group wishes to join him. I will be just as delighted to see them taken away.  
   
-[In the words of](https://redphoenixnews.com/2022/09/22/editorial-on-patriotic-socialism-and-maga-communism/) the U.S. vanguard party, the American Party of Labor, which has taken a principled stand, a stand without a *hint* of class collaboration, without a *shred* of tolerance to the chauvinists of their "own" country, a stand that is *without doubt* the only stand a Marxist can take:
-
-> While “Patriotic Socialism” and “MAGA Communism” serve the most backward and authoritarian elements of the ruling class, we, defenders of all working class people, claim our place in the great tradition of human liberation and equality, the tradition of 1789 and 1917.
-
-> We call for the unmasking and the driving out from our movement of all hidden reactionaries,  sell-outs, opportunists, collaborators, grifters, and fascist bootlickers.  
-  
-The Red Spectre empathically seconds this call. This despicable perversion of the teachings of Marx, Engels, Lenin and Stalin has outlived its welcome since the day it was conceived. There can be no leniency while it lives and no doubt that it will perish. And to you, my overseas Comrades, I have no doubt you will show these wretches where they belong, that these scum will be mere footnotes in your struggle.
+This despicable perversion of the teachings of Marx, Engels, Lenin and Stalin has outlived its welcome since the day it was conceived. There can be no leniency while it lives and no doubt that it will perish. And to you, my overseas Comrades, I have no doubt you will show these wretches where they belong, that these scum will be mere footnotes in your struggle.
 
 I have no doubt that the Combinists, specifically the most devout and most deplorable of this infantile trend, will come crying out: "enemies of Socialism! how dare puncture our tiny echo chamber!" To them I say: Many years from now, when the American Comrades at long last liberate themselves from the tyranny of Capital, I pledge to make a *toast* for "Maga Communism" - For all the mistakes and perversions you committed for our movement to educate against, for all the comedic value graciously and generously given by the *first circus operating beyond the visible spectrum.* Thank you for being such perfect case studies for *everything a Marxist ought to avoid!*  
 

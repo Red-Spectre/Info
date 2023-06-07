@@ -64,8 +64,6 @@ with deprivation of liberty for up to ten years.
   
     [For more information](https://en-academic.com/dic.nsf/enwiki/3107397)
   
-  In my opinion these laws help create an environment free both from religious sexual oppression and child abusers. This unknown part of our history is not one we need to apologise for - like the propagandists and ideologues of reaction hypocritically claim. Far from it. We need to take pride in it, in this colossal and tragically overlooked achievement woven into our history by the valiant Albanian party, under the wise leadership of Enver Hoxha. This was not, as its claimed, a remnant of reaction, a cancer we failed to do away with, this was not the continued oppression of our homosexual comrades but a step to their emancipation in a time prejudice was much stronger compared to today - leaping over all of "Liberal and Free" Europe to step closer to liberation. Instead of disavowing this road due to the lies of the class enemy we must uphold it as a testament of the just nature of Marxism-Leninism - And to continue our endless march of progress on it.  
-  **Let us remember and defend our past so we may forge a better future.**
   
   # Workers of the world, Unite!
   

@@ -1,7 +1,8 @@
 "Red Spectre" is a project meant to provide Marxists with important and lesser known knowledge, provide answers for overlooked historical questions, and provide theoretical explanations in an approachable and well sourced manner. All of our works are living articles, meaning they will be updated and improved over time. We are open for new authors, writers, advisors, and other additions to the team.
 
 Our current works:
-- [Against Maga-Communism](https://github.com/Red-Spectre/Info/blob/main/Against%20Maga-Communism.md) [New!]
+- [Armament as Duty: A Critique of the APL's Counter-Revolutionary Stance on Firearm Ownership](https://github.com/Red-Spectre/Info/blob/main/Armament%20as%20Duty.md) [New!]
+- [Against Maga-Communism](https://github.com/Red-Spectre/Info/blob/main/Against%20Maga-Communism.md)
 - [Editorial: How Ultra"Left" racism is sabotaging our movement](https://github.com/Red-Spectre/Info/blob/main/Editorial:%20How%20Ultra%22Left%22%20racism%20is%20sabotaging%20our%20movement.md) 
 - [Socialist Commodity Production](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md) 
 - [Albania: Feeding above its weight class](https://github.com/Red-Spectre/Info/blob/main/Albania:%20Feeding%20above%20its%20weight%20class.md) 
@@ -10,14 +11,6 @@ Our current works:
 - [Nazis, Fascists, Dictators & War criminals helped & rehabilitated by the west](https://github.com/Red-Spectre/Info/blob/main/War%20Criminals.md)
 - [Against Dengism](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md)
 - [Against Trotskyism](https://github.com/Red-Spectre/Info/blob/main/Against%20Trotskyism.md) 
-
-We are a part of the collective "Marxist-Leninists", a community striving to study the teachings of Karl Marx, Friedrich Engels, Vladimir Lenin, Joseph Stalin, Enver Hoxha, Georgi Dimitrov and others.
-
-Our cardinal task is theoretical education and discussion. Each week there will be dedicated articles, reading sessions and study groups relating to a concept we aim to teach.
-
-Feel free to join, contribute and learn with us.
-
-https://discord.gg/gQUUPq7fEe
 
 ## Contact us!
 **Discord:**   
@@ -29,4 +22,4 @@ https://discord.gg/gQUUPq7fEe
 
 
 # Workers of the world, Unite!
-![banner](/Assets/Images/PPSH.png)
+![banner](/Assets/Images/MELS.png)
