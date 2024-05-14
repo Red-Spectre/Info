@@ -1,5 +1,8 @@
 # Changelog
 
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/index.html)
+
 
 15/7/2023  
 -Published a new article, first written by our new member
