@@ -1,3 +1,9 @@
+
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/armament-as-duty-a-critique-of-the-apls-counter-revolutionary-stance-on-firearm-ownership.html)
+
+
+
 <p align="center">
 "Under no pretext should arms and ammunition be surrendered; any attempt to disarm the workers must be frustrated, by force if necessary."
 </p>  

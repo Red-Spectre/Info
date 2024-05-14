@@ -1,3 +1,14 @@
+
+
+
+
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/yemen-a-country-in-crisis.html)
+
+
+
+
+
 <p align="center">
   "The right of self-determination means that only the nation itself has the right to determine its destiny, that no one has the right forcibly to interfere in the life of the nation, to destroy its schools and other institutions, to violate its habits and customs, to repress its language, or curtail its rights."
 </p>  

@@ -1,3 +1,8 @@
+
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/against-maga-communism.html)
+
+
 # Against Maga-Communism
 
 ## Introduction

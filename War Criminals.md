@@ -1,3 +1,12 @@
+
+
+
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/nazis-fascists-dictators--war-criminals-helped--rehabilitated-by-the-west.html)
+
+
+
+
 # Nazis, Fascists, Dictators & War criminals helped & rehabilitated by the west
 
 

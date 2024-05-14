@@ -1,3 +1,10 @@
+
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/against-dengism.html)
+
+
+
+
 # Against Dengism
 
 - [Is China Socialist?](https://github.com/Red-Spectre/Info/blob/main/Against%20Dengism.md#is-china-socialist)

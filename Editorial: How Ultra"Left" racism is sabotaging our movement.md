@@ -1,3 +1,11 @@
+
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/editorial-how-ultraleft-racism-is-sabotaging-our-movement.html)
+
+
+
+
+
 <p align="center">
 "There you have a picture of the specific platform and the specific methods of the "Lefts." This, in fact, explains why the "Lefts" sometimes succeed in luring a part of the workers over to their side with the help of high-sounding "Left" phrases and by posing as the most determined opponents of the Rights, although all the world knows that they, the "Lefts," have the same social roots as the Rights, and that they not infrequently join in an agreement, a bloc, with the Rights in order to fight the Leninist line.
 

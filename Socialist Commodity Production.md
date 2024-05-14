@@ -1,3 +1,13 @@
+
+
+
+
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/socialist-commodity-production.html)
+
+
+
+
 Left communists love to slander the USSR, Stalin, and Marxism by claiming we haven’t read enough theory to know that commodity production cannot exist in socialism. This work is dedicated to showing that left communism is what happens when you don’t read carefully enough. 
 
 - [Marx explains what necessitates capital:](https://github.com/Red-Spectre/Info/blob/main/Socialist%20Commodity%20Production.md#marx-explains-what-necessitates-capital)

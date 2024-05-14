@@ -1,4 +1,6 @@
-### W.I.P
+
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/1945---1953-europe-wanted-stalin.html)
 
 Out of all the lies about Stalin I have seen, few (if any) are as insufficiently addressed as "Stalin forced Socialism on the Eastern Bloc". There already exists plenty of evidence for each individual country, proving that it was not the case. Finland remaining capitalist also serves this case.  
 

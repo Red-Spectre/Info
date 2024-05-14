@@ -1,3 +1,11 @@
+
+
+# NOTICE:
+## THIS REPOSITORY IS DEPRECATED AND WILL NOT BE UPDATED. WE HAVE MOVED TO A [WEBSITE](https://theredspectre.com/against-trotskyism.html)
+
+
+
+
 # Against Trotskyism
 ## W.I.P: Very early version! Last updated: 17/03/2022
 I decided to release this version despite its incompleteness, as I know it can be useful despite its early stage. 
